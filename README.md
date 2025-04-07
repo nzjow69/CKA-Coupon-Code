@@ -9,7 +9,7 @@ The Linux Foundation has introduced several promotions to make the CKA certifica
 ### 1. Up to 50% Discount on Certifications and Bundles
 
 * Discount Details: Enjoy up to a [50% discount](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) on individual certifications and certification bundles, including the CKA exam.
-* Coupon Code: Use code MAR25CT at checkout.
+* Coupon Code: Use code APR25CT at checkout.
 * Validity: This promotion is available for a limited time; it’s advisable to verify the current validity.
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXedFjF_GYm03yEch1uess2sus7DRotQKdhMu689Rhdykkp5qfpPdUmuxP9ZNmV_aiU3vruuBsOTb7E7JyHl4x2IBMzVWbCTPDQIYV1E6POp06z69hdZJGpld-p1C4VszkpcWqybsw?key=jQ7m6dVqvmKfiquBj10dp-BP)](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
